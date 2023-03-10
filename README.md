@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kingjhenny
+- 👋 Hi, I’m @Jhennifer
 - 👀 I’m interested in ...UI/UX Design, Product Design, User experience, blockchain, Web3
 - 🌱 I’m currently learning ... UI/UX Design
 - 💞️ I’m looking to collaborate on ...
